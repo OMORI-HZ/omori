@@ -1,0 +1,2 @@
+# omori
+im ceo bitch
